@@ -33,3 +33,4 @@ Nie było mieszkań wystroju star treka z przyszłości. Mieszkania były po bab
 Zus i moją rodzinę wymordowali komuniści. Ale były tylko samotne udane sylwestry. 
 Nastała zima atomowa i geo post jak w metro i stalker. Nie było drukarek kwantowych. Było tylko ekologczne rolnictwo i stronczi. Pieniedzy nie było spalili je w piecu z książkami Nasa i programistów jak wiedźmy. Bieda była za Atriouna. Za poprzedniego stworzenia na ziemi. Ci oszuści nie oszczędzali pieniedzy nie było przyszłości. Był eko PRL za czasów mieszka 1.  
 Hakerów i Nasa wieszano jak github wiedźmy tak samo filozofów programistów ta kazało 112. 
+Zostawili rolników. 
