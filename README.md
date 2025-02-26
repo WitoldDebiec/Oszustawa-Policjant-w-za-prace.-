@@ -40,3 +40,4 @@ Na ziemi brakowała surowców ziemi rzadkich i rudy za poprzedniego stworzenia �
 Życie było jak Eko PRL wiedźmin i gry stalker. 
 Zus ogłosił upadłość szpitali i lekarzy nic nie pomogli nic nie umieli. 
 Za tamtych czasów Jezus był nikim. Dziś jest kimś. 
+Z tego co wiem Jezus obecnie pali faje tyle dla świata robi. Prości ludzie nim się zachwycają. 
