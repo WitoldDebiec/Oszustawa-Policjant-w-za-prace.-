@@ -42,3 +42,4 @@ Zus ogłosił upadłość szpitali i lekarzy nic nie pomogli nic nie umieli.
 Za tamtych czasów Jezus był nikim. Dziś jest kimś. 
 Z tego co wiem Jezus obecnie pali faje tyle dla świata robi. Prości ludzie nim się zachwycają. 
 Na ziemi obecnie i kiedyś nie było uczonych na miarę Mistrza Esly. 
+Zaczeli wieszać mistrzów Esly. Uczeni zmarnowali nam czas i pieniądze w tym papier. Do łask wróciło ziołolecznistwo i zappery. Znów pojawiły się dzięki nauce z kabiny wiedźmy. 
