@@ -12,3 +12,4 @@ Tych oszóstw jest dużo lista praca za wypłatę. Co dają dziś specjalistom.
 -Brak wypłaty i dużych zarobków do pod wynajem.
 Tyle o eleitach i chcmastwie Policji i Wesołowskich i kaliego. 
 Ten system to komunizm wojskowy. 
+Wesołowskiej, Judi i Kubusiowie i tej policji Cerffur to tylko wypisać renty za pilnowanie banku z pieniedzmi. Że nic nie chcą dać. 
