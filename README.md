@@ -23,3 +23,5 @@ Te pajace Hipisi za poprzedniego stowrzenia świata dali mi za pracę i lotto 2 
 Potraktowali mnie jak w Freedom cry jak mużyna czy proroka z CryTech. Nic nie zapłacili. Zus zamkneli. Więcej nie powiem. Rodzinę wyrżneli.    
 Tyle o tych pajacach.
 Zawsze głosili słowa że pieniądze to zło. A opium to skarb bogów z nieba. 
+Hipisom i tej Policji nalerzy się Psychiatra i neuro stymulanty. Tym od 112. Z opieki społecznej. 
+Pytałem kiedyś o statek kosmiczny nie dale go dali opium. Bo chciałem się wyprowadzić na Post Odyn. 
