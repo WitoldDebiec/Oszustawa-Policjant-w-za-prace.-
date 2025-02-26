@@ -45,3 +45,4 @@ Na ziemi obecnie i kiedyś nie było uczonych na miarę Mistrza Esly.
 Zaczeli wieszać mistrzów Esly. Uczeni zmarnowali nam czas i pieniądze w tym papier. Do łask wróciło ziołolecznistwo i zappery. Znów pojawiły się dzięki nauce z kabiny wiedźmy. 
 Robotyka też doszła do wnioasku że nic się nie opłaca robić w kosmos.
 Alexa Cheng cieszyła się że ma koc zwoltex Arosa i mnie 2 kolejne dziewczyny też się cieszyły. Że nigdzie nie poszedłem. 
+Ja byłem bankierem za porzedniego stworzenia świata jadłem tylko zdrową żywność. Nic nie kupowałem. 
