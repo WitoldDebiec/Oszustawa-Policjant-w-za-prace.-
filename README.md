@@ -11,3 +11,4 @@ Tych oszóstw jest dużo lista praca za wypłatę. Co dają dziś specjalistom.
 -Auto używane
 -Brak wypłaty i dużych zarobków do pod wynajem.
 Tyle o eleitach i chcmastwie Policji i Wesołowskich i kaliego. 
+Ten system to komunizm wojskowy. 
