@@ -11,6 +11,9 @@ Tych oszóstw jest dużo lista praca za wypłatę. Co dają dziś specjalistom.
 -Opieka medyczna
 -Karta usług zniżki
 -Auto używane
+-Brak oszczędzania pieniedzy ogólny geo post.
+-Wszystko szło na złom do Buriana syntomu za wódkę i zakupy stacji rav.
+-Nie było komputerów ja tylko wiedziałem o produkcji statków kosmicznych. 
 -Brak wypłaty i dużych zarobków do pod wynajem.
 Tyle o eleitach i chcmastwie Policji i Wesołowskich i kaliego. 
 Ten system to komunizm wojskowy. 
@@ -27,3 +30,4 @@ Hipisom i tej Policji nalerzy się Psychiatra i neuro stymulanty. Tym od 112. Z 
 Pytałem kiedyś o statek kosmiczny nie dale go dali opium. Bo chciałem się wyprowadzić na Post Odyn. 
 Nie było mieszkań wystroju star treka z przyszłości. Mieszkania były po babci staloniowskiej z PRL Gierka dziurawe obrusy, stoły z płyty OSB lub starego drewna, Obrusy szyta i dziurawe czy cerowane, Wszystko wynajmowane i porzyczane i była ogólnie wielka bieda nie było Voisów było ronictwo przed woejene i przed rewolucją przyszłości coś jak wymyślili filozofowie prometeusz. Tak było za porzedniego stworzenia w dalekiej przyszłości. Niketurzy ręcznym pługiem jeszcze pracowali. Bo nie było paliw. Była bieda. Rząd sobie nie radził. Pytałem o statek kosmicnzy na Post odyn nikt nie wiedział o co pytam. 
 Zus i moją rodzinę wymordowali komuniści. Ale były tylko samotne udane sylwestry. 
+Nastała zima atomowa i geo post jak w metro i stalker. Nie było drukarek kwantowych. Było tylko ekologczne rolnictwo i stronczi. Pieniedzy nie było spalili je w piecu z książkami Nasa i programistów jak wiedźmy. Bieda była za Atriouna. Za poprzedniego stworzenia na ziemi. Ci oszuści nie oszczędzali pieniedzy nie było przyszłości. Był eko PRL za czasów mieszka 1.  
