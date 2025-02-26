@@ -18,3 +18,4 @@ Wesołowskiej, Judi i Kubusiowie i tej policji Cerffur to tylko wypisać renty z
 Oni myślą że każdy to hipol, hipis czy hispter. Że kasa się nie liczy. 
 Oni są spontaniczni i prości. To maszyny Garett Thief 112.
 Tyle te śmieci z policji dziś płaca za prace. 
+Policja to pijoczki. 
