@@ -20,3 +20,4 @@ Oni są spontaniczni i prości. To maszyny Garett Thief 112.
 Tyle te śmieci z policji dziś płaca za prace. 
 Policja to pijoczki.
 Te pajace Hipisi za poprzedniego stowrzenia świata dali mi za pracę i lotto 2 żony Naomi Shidt i Kristiane Loken i opium i 120 m2 mieszkanie na niskiej w Polsce kiedyś po tem Alexe Cheng nigdy nie widziałem przez tych hipisów gotówki. Praca tylko w Polu. Takie okropności robili w przyszłości kwiatki. 
+Potraktowali mnie jak w Freedom cry jak mużyna czy proroka z CryTech. Nic nie zapłacili. Zus zamkneli. Więcej nie powiem. Rodzinę wyrżneli.    
