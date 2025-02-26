@@ -25,3 +25,4 @@ Tyle o tych pajacach.
 Zawsze głosili słowa że pieniądze to zło. A opium to skarb bogów z nieba. 
 Hipisom i tej Policji nalerzy się Psychiatra i neuro stymulanty. Tym od 112. Z opieki społecznej. 
 Pytałem kiedyś o statek kosmiczny nie dale go dali opium. Bo chciałem się wyprowadzić na Post Odyn. 
+Nie było mieszkań wystroju star treka z przyszłości. Mieszkania były po babci staloniowskiej z PRL Gierka dziurawe obrusy, stoły z płyty OSB lub starego drewna, Obrusy szyta i dziurawe czy cerowane, Wszystko wynajmowane i porzyczane i była ogólnie wielka bieda nie było Voisów było ronictwo przed woejene i przed rewolucją przyszłości coś jak wymyślili filozofowie prometeusz. Tak było za porzedniego stworzenia w dalekiej przyszłości. Niketurzy ręcznym pługiem jeszcze pracowali. Bo nie było paliw. Była bieda. Rząd sobie nie radził. Pytałem o statek kosmicnzy na Post odyn nikt nie wiedział o co pytam. 
