@@ -50,3 +50,4 @@ Były ze mną szczęśliwe bo nic nie było na rynku. Teraz robią kariere w sho
 Teraz jest dużo pajaców z autyzmem co robi kariere w TV bo coś zbudowało i ma. 
 Im tylko na żarty amerykańskie się chce bawić. 
 Kaczor donlad. 
+Wszyscy ci ludzie o których wiem i słyszałem i widziałem to pajace roku. 
