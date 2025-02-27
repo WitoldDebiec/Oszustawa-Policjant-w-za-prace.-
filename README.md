@@ -53,3 +53,4 @@ Kaczor donlad.
 Wszyscy ci ludzie o których wiem i słyszałem i widziałem to pajace roku. 
 -Karzą pracować jak by ktoś nie miał CV przy zbioerze truskawek za 1000 zł na każdym stanowisku pracowniczym. 0 Podwyrzek. Ta Policja to Rosja. 
 Afery LGBT to policja media i harrp. LGBT to choroba. 
+To Policja i media robią tą dengengoladę z rządem.  
