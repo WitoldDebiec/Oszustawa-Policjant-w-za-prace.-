@@ -51,3 +51,4 @@ Teraz jest dużo pajaców z autyzmem co robi kariere w TV bo coś zbudowało i m
 Im tylko na żarty amerykańskie się chce bawić. 
 Kaczor donlad. 
 Wszyscy ci ludzie o których wiem i słyszałem i widziałem to pajace roku. 
+-Karzą pracować jak by ktoś nie miał CV przy zbioerze truskawek za 1000 zł na każdym stanowisku pracowniczym. 0 Podwyrzek. Ta Policja to Rosja. 
