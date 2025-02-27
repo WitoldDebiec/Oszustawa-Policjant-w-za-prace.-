@@ -48,3 +48,4 @@ Alexa Cheng cieszyła się że ma koc zwoltex Arosa i mnie 2 kolejne dziewczyny 
 Ja byłem bankierem za porzedniego stworzenia świata jadłem tylko zdrową żywność. Nic nie kupowałem.
 Były ze mną szczęśliwe bo nic nie było na rynku. Teraz robią kariere w show. 
 Teraz jest dużo pajaców z autyzmem co robi kariere w TV bo coś zbudowało i ma. 
+Im tylko na żarty amerykańskie się chce bawić. 
