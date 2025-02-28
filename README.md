@@ -76,3 +76,5 @@ Ta policja nie wyjaśniła który to prawy i lewy. Lewy to chłopak w sukience c
 Niektóre cnotliwe szmaty nosiły płaszcz i koc zwoltex arosa w histori cnot lewostanu i celibatu. Cnota ubiera się w szmaty i kórtki i nosi dziecko przy sobie lub ubiera ubrania prawej ale ma męża i dziecko i jest cnotą bo ma rodzinę i jest lewa i stawia na rodzinę. Prawa ubiera płaszcz i koc zwoltex arosa i jej chce się piepszyć. Tyle policja to ukrywa. Teraz wszystkie to cnotliwe szmaty lewostanu kozaczki z dzieckiem jak Maryja mamunia szmatunia. 
 One nauczyły się oszukiwać nas za pomocą rad księdza i Policji. 
 Teraz mamusie i alimenty się się kamuflują w ubraniach prawicy a prawe chodzą w szmatach czasem przz tą Policje szmat i księży. 
+Lewe kobiety mamunie to kabanosy Tarczyński. I płaszcz kaczuszka. 
+Prawe kobiety dziwki nie mamy nie zakonicye cnoty to marka koca zwoltex Arosa i płaszcza Top Sicret. 
