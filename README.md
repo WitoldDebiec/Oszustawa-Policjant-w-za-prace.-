@@ -82,3 +82,4 @@ Praw kobiety były git bo godziły się po stosunku na skrobankę. Lewe kobiety 
 To kali i jego mamy są bandytami dla tej planety oni to wirus przez ich armie celibatu jest ciasno i nie ma miłości. Rodzą się tylko autystyczne patafiany. 
 Lewandowsski i Natalia Śiwiec jest lewa i lewy bo chcą mieć rodzinę lub dużą rodzinę i bawić się w pociąg lub autobus czy bus lub wan. Z tąd pojęcie lewy czy szakior pies. 1 Ludzie nie byli lewi bo lewi byli żydzi co ich wirusem lewostanu zarazili aby płodzili dzieci jak idioci mowa o Adamie i Ewie. 
 To świat jest lewy bo nie chce lecieć w kosmos na inne planety i odać mi ziemi. 
+Podatek od seksu i przyjemności wprowadził abdocha Izrael. 1 zaczoł Bezos, Kali, NA KOŃCU IZRAEL i zkaz seksu tylko praca i celibat.  
