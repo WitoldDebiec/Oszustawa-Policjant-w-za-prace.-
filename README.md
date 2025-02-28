@@ -58,3 +58,4 @@ Teraz Bliskie osoby biorą do sklepów i fabryk czy policji taki jest szindel na
 Policja robi nielegalne rządy zakazali hazardu dla zysku tylko akcpatują hazard dla start i gry. Ich rząd jest nielegalny. Jest jak kiedyś. Rządzi nami knyp z ukrainy żydek.  Bezos też jest żyd. 
 Ta Policja straszy przegłosami kali linux że płaczą bezosy płaszcze kristiana, dorwę tego hakera i powiesze go. ITP. 
 Teraz zasady są inne gramy dla was nosimy podarte gacie i nic nie mamy w kieszani pieniedzy wspieramy NGO. Kiedyś była gra dla siebie. 
+Służą w wojsku sklepów jak by w nich gołębie wstąpiły do mózgu. 
