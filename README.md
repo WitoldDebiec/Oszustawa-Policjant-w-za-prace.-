@@ -67,3 +67,4 @@ To już trwa od 100 000 lat od pojawienia się nadeltalczyka i teori i małpach 
 Na początku tej histori była Planeta Niburu czyli Diakonia z kądt pochodzi Alexa Cheng. Z tej planety są te 1 awantury na radio zmuszające do wiary. 
 Na szczcycie Kaczor Donald stoi marvel w NYC.  
 Wszystkie kasyna zniszczyła zasadnicza służba wojskowa i pobór do policji. 
+Wszystkie wojny wzieły się z mediów i kontroli umysłu są oni nie legalni. Bo gazetka nie ma co pisać a borysek i kali nie będą już gwiazdami gazet. 
