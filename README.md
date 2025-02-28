@@ -72,3 +72,4 @@ Wszystkie wojny wzieły się z mediów i kontroli umysłu są oni nie legalni. B
 I tak narodziły się Polskie i światowe i wszechświatowe dzbany i dznaki istoty ludzkie i urobione i kosmiczne z gliny. 
 Schemat mi sypneła Anstazja in Tech. Kto zaczoł. Ja zaczołem studia tej konspiracji. 
 Jeśli nałożymy na to kontrast lustra to winy reptyljanina lewgo wyjdą jak i prawego. Podam 2 definicje lewy to celibaty ksiądz men is black i oglądanie TV i zakupy, prawy to ruchanie.  
+Ta policja nie wyjaśniła który to prawy i lewy. Lewy to chłopak w sukience cnotliwy ksiądz czy zakonica. Lewy krzyczy zawsze tu jest Izrael. Prawy tu jest Polska tu jest ruchanie zakaz Watykanu. 
