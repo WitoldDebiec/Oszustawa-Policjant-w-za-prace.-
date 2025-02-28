@@ -79,3 +79,4 @@ Teraz mamusie i alimenty się się kamuflują w ubraniach prawicy a prawe chodz�
 Lewe kobiety mamunie to kabanosy Tarczyński. I płaszcz kaczuszka. 
 Prawe kobiety dziwki nie mamy nie zakonicye cnoty to marka koca zwoltex Arosa i płaszcza Top Sicret. 
 Praw kobiety były git bo godziły się po stosunku na skrobankę. Lewe kobiety karzą dzieci rodzić. To te lewe skórwysyny od Kaliego narobiły tych lewych dzieci ich harrp i to całe 112 i Policja księży ci są lewi. Lewi bawią się w życie. Prawi w Eden i brak ciasnoty.  
+To kali i jego mamy są bandytami dla tej planety oni to wirus przez ich armie celibatu jest ciasno i nie ma miłości. Rodzą się tylko autystyczne patafiany. 
