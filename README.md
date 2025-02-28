@@ -68,3 +68,4 @@ Na początku tej histori była Planeta Niburu czyli Diakonia z kądt pochodzi Al
 Na szczcycie Kaczor Donald stoi marvel w NYC.  
 Wszystkie kasyna zniszczyła zasadnicza służba wojskowa i pobór do policji. 
 Wszystkie wojny wzieły się z mediów i kontroli umysłu są oni nie legalni. Bo gazetka nie ma co pisać a borysek i kali nie będą już gwiazdami gazet. 
+1 Skok w czasoprzestrzeni z urzyciem napędu WORP był testowany na Reptyli po tem kręcili kosmiczne jaja u nas gwiezdne wojny my to skopiowaliśmy od reptylian tych idiotów. Gady to a hoj marynażu. Z tąd wzieły się te dziady i a hoj marynażu. Reptyle mają siekę w głowie. 
