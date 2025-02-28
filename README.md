@@ -74,3 +74,4 @@ Schemat mi sypneła Anstazja in Tech. Kto zaczoł. Ja zaczołem studia tej konsp
 Jeśli nałożymy na to kontrast lustra to winy reptyljanina lewgo wyjdą jak i prawego. Podam 2 definicje lewy to celibaty ksiądz men is black i oglądanie TV i zakupy, prawy to ruchanie.  
 Ta policja nie wyjaśniła który to prawy i lewy. Lewy to chłopak w sukience cnotliwy ksiądz czy zakonica. Lewy krzyczy zawsze tu jest Izrael. Prawy tu jest Polska tu jest ruchanie zakaz Watykanu. 
 Niektóre cnotliwe szmaty nosiły płaszcz i koc zwoltex arosa w histori cnot lewostanu i celibatu. Cnota ubiera się w szmaty i kórtki i nosi dziecko przy sobie lub ubiera ubrania prawej ale ma męża i dziecko i jest cnotą bo ma rodzinę i jest lewa i stawia na rodzinę. Prawa ubiera płaszcz i koc zwoltex arosa i jej chce się piepszyć. Tyle policja to ukrywa. Teraz wszystkie to cnotliwe szmaty lewostanu kozaczki z dzieckiem jak Maryja mamunia szmatunia. 
+One nauczyły się oszukiwać nas za pomocą rad księdza i Policji. 
