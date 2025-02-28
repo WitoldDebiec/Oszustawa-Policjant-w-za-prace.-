@@ -54,3 +54,4 @@ Wszyscy ci ludzie o których wiem i słyszałem i widziałem to pajace roku.
 -Karzą pracować jak by ktoś nie miał CV przy zbioerze truskawek za 1000 zł na każdym stanowisku pracowniczym. 0 Podwyrzek. Ta Policja to Rosja. 
 Afery LGBT to policja media i harrp. LGBT to choroba. 
 To Policja i media robią tą dengengoladę z rządem.  Bo gazetka nie ma co pisać. 
+Teraz Bliskie osoby biorą do sklepów i fabryk czy policji taki jest szindel na chłopa pańszycznianego u serzosa. 
