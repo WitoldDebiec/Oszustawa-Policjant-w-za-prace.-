@@ -71,3 +71,4 @@ Wszystkie wojny wzieły się z mediów i kontroli umysłu są oni nie legalni. B
 1 Skok w czasoprzestrzeni z urzyciem napędu WORP był testowany na Reptyli po tem kręcili kosmiczne jaja u nas gwiezdne wojny my to skopiowaliśmy od reptylian tych idiotów. Gady to a hoj marynażu. Z tąd wzieły się te dziady i a hoj marynażu. Reptyle mają siekę w głowie. 
 I tak narodziły się Polskie i światowe i wszechświatowe dzbany i dznaki istoty ludzkie i urobione i kosmiczne z gliny. 
 Schemat mi sypneła Anstazja in Tech. Kto zaczoł. Ja zaczołem studia tej konspiracji. 
+Jeśli nałożymy na to kontrast lustra to winy reptyljanina lewgo wyjdą jak i prawego. Podam 2 definicje lewy to celibaty ksiądz men is black i oglądanie TV i zakupy, prawy to ruchanie.  
