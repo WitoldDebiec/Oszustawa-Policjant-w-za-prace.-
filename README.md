@@ -59,3 +59,4 @@ Policja robi nielegalne rządy zakazali hazardu dla zysku tylko akcpatują hazar
 Ta Policja straszy przegłosami kali linux że płaczą bezosy płaszcze kristiana, dorwę tego hakera i powiesze go. ITP. 
 Teraz zasady są inne gramy dla was nosimy podarte gacie i nic nie mamy w kieszani pieniedzy wspieramy NGO. Kiedyś była gra dla siebie. 
 Służą w wojsku sklepów jak by w nich gołębie wstąpiły do mózgu. 
+Ludzie dostali fioła na punkcie oszczędzaczy i z nikim nie rozmawiają. 
