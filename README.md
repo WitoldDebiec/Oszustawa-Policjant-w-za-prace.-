@@ -60,3 +60,4 @@ Ta Policja straszy przegłosami kali linux że płaczą bezosy płaszcze kristia
 Teraz zasady są inne gramy dla was nosimy podarte gacie i nic nie mamy w kieszani pieniedzy wspieramy NGO. Kiedyś była gra dla siebie. 
 Służą w wojsku sklepów jak by w nich gołębie wstąpiły do mózgu. 
 Ludzie dostali fioła na punkcie oszczędzaczy i z nikim nie rozmawiają. 
+Na pczątku tej opwieści są na ziemi Hakerzy hipisi, po tem bezosy, po tem żydzi, na konicu Borys a na samym końcu z chipami drako drakoni jest Kali Linux Kali i Back Track koło Reptyli. Taki łańcuch pociągania za sznurki chipami z tąd te afery wojny i rostania. 
