@@ -81,3 +81,4 @@ Prawe kobiety dziwki nie mamy nie zakonicye cnoty to marka koca zwoltex Arosa i 
 Praw kobiety były git bo godziły się po stosunku na skrobankę. Lewe kobiety karzą dzieci rodzić. To te lewe skórwysyny od Kaliego narobiły tych lewych dzieci ich harrp i to całe 112 i Policja księży ci są lewi. Lewi bawią się w życie. Prawi w Eden i brak ciasnoty.  
 To kali i jego mamy są bandytami dla tej planety oni to wirus przez ich armie celibatu jest ciasno i nie ma miłości. Rodzą się tylko autystyczne patafiany. 
 Lewandowsski i Natalia Śiwiec jest lewa i lewy bo chcą mieć rodzinę lub dużą rodzinę i bawić się w pociąg lub autobus czy bus lub wan. Z tąd pojęcie lewy czy szakior pies. 1 Ludzie nie byli lewi bo lewi byli żydzi co ich wirusem lewostanu zarazili aby płodzili dzieci jak idioci mowa o Adamie i Ewie. 
+To świat jest lewy bo nie chce lecieć w kosmos na inne planety i odać mi ziemi. 
