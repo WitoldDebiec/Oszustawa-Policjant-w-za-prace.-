@@ -56,3 +56,4 @@ Afery LGBT to policja media i harrp. LGBT to choroba.
 To Policja i media robią tą dengengoladę z rządem.  Bo gazetka nie ma co pisać. 
 Teraz Bliskie osoby biorą do sklepów i fabryk czy policji taki jest szindel na chłopa pańszycznianego u serzosa. 
 Policja robi nielegalne rządy zakazali hazardu dla zysku tylko akcpatują hazard dla start i gry. Ich rząd jest nielegalny. Jest jak kiedyś. Rządzi nami knyp z ukrainy żydek.  Bezos też jest żyd. 
+Ta Policja straszy przegłosami kali linux że płaczą bezosy płaszcze kristiana, dorwę tego hakera i powiesze go. ITP. 
