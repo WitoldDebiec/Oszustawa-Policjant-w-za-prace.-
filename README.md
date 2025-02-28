@@ -65,3 +65,4 @@ Tyle o harrp trlongu przez służby specjalne gazet. Bo praska nie ma co pisać 
 Ziarno nie zgody. 
 To już trwa od 100 000 lat od pojawienia się nadeltalczyka i teori i małpach opowiadanych przez indian o reinkarnacji za karę bo nie podało się siema indianinowi.   
 Na początku tej histori była Planeta Niburu czyli Diakonia z kądt pochodzi Alexa Cheng. Z tej planety są te 1 awantury na radio zmuszające do wiary. 
+Na szczcycie Kaczor Donald stoi marvel w NYC.  
