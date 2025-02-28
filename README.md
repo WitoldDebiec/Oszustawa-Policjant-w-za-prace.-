@@ -63,3 +63,4 @@ Ludzie dostali fioła na punkcie oszczędzaczy i z nikim nie rozmawiają.
 Na pczątku tej opwieści są na ziemi Hakerzy hipisi, po tem bezosy, po tem żydzi, na konicu Borys a na samym końcu z chipami drako drakoni jest Kali Linux Kali i Back Track koło Reptyli na górze 2 planety drako i drakonia na samej górze Diakonia Alexa Cheng. Taki łańcuch pociągania za sznurki chipami z tąd te afery wojny i rostania. 
 Tyle o harrp trlongu przez służby specjalne gazet. Bo praska nie ma co pisać do prasy. Tyle o tych łobuzach i zmianach naszych myśli do wjny i kontroli umysłu.  
 Ziarno nie zgody. 
+To już trwa od 100 000 lat od pojawienia się nadeltalczyka i teori i małpach opowiadanych przez indian o reinkarnacji za karę bo nie podało się siema indianinowi.   
