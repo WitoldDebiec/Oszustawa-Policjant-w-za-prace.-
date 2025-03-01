@@ -86,3 +86,4 @@ Podatek od seksu i przyjemności wprowadził abdocha Izrael. 1 zaczoł Bezos, Ka
 Tłumaczyli się spekulanci że to robią w celu ratowania firmy a kierują ku upadkowi tymi oszczędnościami w gotówce. 
 Oszustwo post mafi polega na braku dostatecznej ilości gotówki. 
 W dawnych czasach Jurek Magdziński z Deus Ex kazał bawić się do 250 lat lalkami dla dzieci i dorosłych dla mnie Jurek Magdziński ten Policjant to wariat. Tak samo czarny to wariat men is black i cerffur bezosy. Czas dorosnąć. To są te ich oszczędzacze. To choroba jest genetyczna. 1 Ludzie byli normalni. 
+Te wysokie cenny to winna czarnego księdza. Ksiądz ustala cenny szczególnie za zdrowie i modyfikacje ciała czy DNA. Jurek Magdziński z Deus Ex też jest czarny. 
