@@ -83,3 +83,4 @@ To kali i jego mamy są bandytami dla tej planety oni to wirus przez ich armie c
 Lewandowsski i Natalia Śiwiec jest lewa i lewy bo chcą mieć rodzinę lub dużą rodzinę i bawić się w pociąg lub autobus czy bus lub wan. Z tąd pojęcie lewy czy szakior pies. 1 Ludzie nie byli lewi bo lewi byli żydzi co ich wirusem lewostanu zarazili aby płodzili dzieci jak idioci mowa o Adamie i Ewie. 
 To świat jest lewy bo nie chce lecieć w kosmos na inne planety i odać mi ziemi. 
 Podatek od seksu i przyjemności wprowadził abdocha Izrael. 1 zaczoł Bezos, Kali, NA KOŃCU IZRAEL i zkaz seksu tylko praca i celibat.  
+Tłumaczyli się spekulanci że to robią w celu ratowania firmy a kierują ku upadkowi tymi oszczędnościami w gotówce. 
