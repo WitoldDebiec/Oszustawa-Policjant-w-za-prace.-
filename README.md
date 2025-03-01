@@ -84,3 +84,4 @@ Lewandowsski i Natalia Śiwiec jest lewa i lewy bo chcą mieć rodzinę lub duż
 To świat jest lewy bo nie chce lecieć w kosmos na inne planety i odać mi ziemi. 
 Podatek od seksu i przyjemności wprowadził abdocha Izrael. 1 zaczoł Bezos, Kali, NA KOŃCU IZRAEL i zkaz seksu tylko praca i celibat.  
 Tłumaczyli się spekulanci że to robią w celu ratowania firmy a kierują ku upadkowi tymi oszczędnościami w gotówce. 
+Oszustwo post mafi polega na braku dostatecznej ilości gotówki. 
