@@ -91,3 +91,4 @@ Winni są czrani. Cenny są nie adekwatne do zarobków.
 Policja powina się nauczyć samodzielności obywatleskiej a nie pytać innych o pomoc fatygę jak Bespieka. Bezpiekę nalerzy zdemnotować na częsci do kosza na śmieci. Mowa o Kalim. 
 Ta Policja dawała tylko żonę w majątek bez pieniedzy. 
 Ludzie nie potrzebują policji i wojska czy ich procesorów od chemioterapi z klopa WC domestosu. 
+Najlepiej zakazać elektryczności i europy. Ludzie bez energi też sobie radzili. 
