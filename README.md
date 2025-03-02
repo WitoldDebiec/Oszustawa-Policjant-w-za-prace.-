@@ -103,3 +103,4 @@ Wszyscy papierze i królowie to ryby i bezdomni.
 Szachiści zakazali wszystkiego co fajne dla mężczyn i kobiet. Jest jak w świecie Thief 2014. 
 Nasi przywódcy ubierają się i ubierali jak bezdomni. 
 Jezus i ci wszyscy panowie i panie to rodzina bezdomnych. 
+CB radia i ta bieda pochodzi z Ukrainy. 
