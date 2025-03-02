@@ -96,3 +96,4 @@ Dzisiejsze kobiety lewe mają wymagoi a nie mają wyglądu.
 Były fajne kobiety to je policja alkaidy wymordowała. Teraz są skunksy kozacy w kórtkach. 
 Teraz są madam skunksy mops oszczędzacze kali linuxy. 
 Jak przychodzę do przychodni psychiatry na leczenie to ludzie którzy tam są śmierdzą. Myją się raz na rok. 
+Do tego dochodzą skompiradła za wode ścieki i energię elektryczną bo karzą dużo płacić i rzadko się z tego korzysta. Do tego sejm i senat mało wydaje pieniedzy na świdzczenia i wypłaty z pracy. 
