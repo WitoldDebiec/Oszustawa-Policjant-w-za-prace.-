@@ -112,4 +112,4 @@ Moda 112 997 Kali Linux oszczędzacz to moda dla niepełnosprawnych i bezdomnych
 Te rządy autystyków i cięcia budrzetowe to rządy jasnosików. 
 Wini tych rządów są Politycy i ci co śrubują śrubą Polityki i ustaw. A nie oszczędzacze. 
 Biblie napisali złodzieje. To taki oszczędzcz. 
-Jak chccie normalności nie Kaczora Donalda to zwolnijcie Kaliego Linuxa z Pracy i polityków na świecie. Wróci elegancja u kobiet bez biedy ich wyślijcie do Izraela i Ukrainy razem z oszczędzaczami. Jurka MAGDZIŃSKIEGO TEŻ TRZEBA KOPNĄĆ W DUPĘ.  
+Jak chccie normalności nie Kaczora Donalda to zwolnijcie Kaliego Linuxa z Pracy i polityków na świecie. Wróci elegancja u kobiet bez biedy ich wyślijcie do Izraela i Ukrainy razem z oszczędzaczami. Jurka MAGDZIŃSKIEGO TEŻ TRZEBA KOPNĄĆ W DUPĘ tego z Deus Ex. Olejcie pojęcie oszczędzacze i awantury kaliego nie ma oszczędzaczy to politycy to wymyślili nie ja ich ganiajcie. Ja tylko wiem. 
