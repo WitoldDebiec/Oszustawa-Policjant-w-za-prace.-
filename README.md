@@ -94,3 +94,4 @@ Ludzie nie potrzebują policji i wojska czy ich procesorów od chemioterapi z kl
 Najlepiej zakazać elektryczności i europy. Ludzie bez energi też sobie radzili.
 Dzisiejsze kobiety lewe mają wymagoi a nie mają wyglądu. 
 Były fajne kobiety to je policja alkaidy wymordowała. Teraz są skunksy kozacy w kórtkach. 
+Teraz są madam skunksy mops oszczędzacze kali linuxy. 
