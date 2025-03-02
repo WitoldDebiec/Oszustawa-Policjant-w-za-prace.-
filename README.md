@@ -99,3 +99,4 @@ Jak przychodzę do przychodni psychiatry na leczenie to ludzie którzy tam są �
 Do tego dochodzą skompiradła za wode ścieki i energię elektryczną bo karzą dużo płacić i rzadko się z tego korzysta. Do tego sejm i senat mało wydaje pieniedzy na świdzczenia i wypłaty z pracy. 
 NGO Grinspis to złodzieje jak legia sparta. Robią cięcia w budrzecie. I zakaz dodruku pieniedzy. 
 Ci ludzie uberają się w starej rosji PRL jak bezdomni minimaliści.  
+Wszyscy papierze i królowie to ryby i bezdomni. 
