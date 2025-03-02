@@ -105,3 +105,4 @@ Nasi przywódcy ubierają się i ubierali jak bezdomni.
 Jezus i ci wszyscy panowie i panie to rodzina bezdomnych. 
 CB radia i ta bieda pochodzi z Ukrainy. 
 Bieda pochodzi też z poematów Izraela i Ukrainy. Tacy poeci. 
+Bieda pochodzi z poematów Izraela i Ukrainy na świat jest przekzywana przez kurierów kryzys to też są poeamty komuny. 
