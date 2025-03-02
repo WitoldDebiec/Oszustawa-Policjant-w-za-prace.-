@@ -107,3 +107,4 @@ CB radia i ta bieda pochodzi z Ukrainy.
 Bieda pochodzi też z poematów Izraela i Ukrainy. Tacy poeci. 
 Bieda pochodzi z poematów Izraela i Ukrainy na świat jest przekzywana przez kurierów kryzys to też są poeamty komuny. 
 To rząd jest zakochany w tych pometach i nie chce dać piniedzy. 
+Tamte ubrania za czasóe kobiet epoki Tesli chodzi o płaszcze i te koce kobiety nie śmierdziały. Dziś przez tą policje ludzie w głowie mają kupe. Diety jakie są to rodzą się otyli. 
