@@ -101,3 +101,4 @@ NGO Grinspis to złodzieje jak legia sparta. Robią cięcia w budrzecie. I zakaz
 Ci ludzie uberają się w starej rosji PRL jak bezdomni minimaliści.  
 Wszyscy papierze i królowie to ryby i bezdomni. 
 Szachiści zakazali wszystkiego co fajne dla mężczyn i kobiet. Jest jak w świecie Thief 2014. 
+Nasi przywódcy ubierają się i ubierali jak bezdomni. 
