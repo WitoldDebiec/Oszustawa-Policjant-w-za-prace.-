@@ -93,3 +93,4 @@ Ta Policja dawała tylko żonę w majątek bez pieniedzy.
 Ludzie nie potrzebują policji i wojska czy ich procesorów od chemioterapi z klopa WC domestosu. 
 Najlepiej zakazać elektryczności i europy. Ludzie bez energi też sobie radzili.
 Dzisiejsze kobiety lewe mają wymagoi a nie mają wyglądu. 
+Były fajne kobiety to je policja alkaidy wymordowała. Teraz są skunksy kozacy w kórtkach. 
