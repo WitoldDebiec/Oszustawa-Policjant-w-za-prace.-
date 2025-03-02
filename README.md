@@ -98,3 +98,4 @@ Teraz są madam skunksy mops oszczędzacze kali linuxy.
 Jak przychodzę do przychodni psychiatry na leczenie to ludzie którzy tam są śmierdzą. Myją się raz na rok. 
 Do tego dochodzą skompiradła za wode ścieki i energię elektryczną bo karzą dużo płacić i rzadko się z tego korzysta. Do tego sejm i senat mało wydaje pieniedzy na świdzczenia i wypłaty z pracy. 
 NGO Grinspis to złodzieje jak legia sparta. Robią cięcia w budrzecie. I zakaz dodruku pieniedzy. 
+Ci ludzie uberają się w starej rosji PRL jak bezdomni minimaliści.  
