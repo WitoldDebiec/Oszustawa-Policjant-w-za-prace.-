@@ -118,4 +118,5 @@ Te zasady i szablony rozmwó i życia wymyślili Politycy. Co do oszczędzaczy t
 30 lat razem alimenty i rostania na lewo szmaty. Ci oszusści to policja żarty policjantów kaczor donald Izrael, Urkaina, Rosja PRL niemcy.  
 Ci oszuści to dresy.
 Ta dzika Policja Cerrffur i disnej ta brzydota dresów to Bezosy ich moda. 
-Ta Policja dresów i tych mediów to Bezosy. 
+Ta Policja dresów i tych mediów to Bezosy.
+Ta Policja to nowbliści piszą o nas prace to są łobuzy. Kiedyś wszystko wróci do normy. Konice świata to też nobliści ta Policja. 
