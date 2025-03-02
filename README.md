@@ -117,3 +117,4 @@ Te zkazy to też Rosja. Trzeba zbudować tokamaki to wszystko wróci.
 Te zasady i szablony rozmwó i życia wymyślili Politycy. Co do oszczędzaczy to one są półśrodkami do celu i nie są to tokamaki i nie łądnie wyglądają i nie uszyje się ładnych ubrań. Politycy są do zmiany. 
 30 lat razem alimenty i rostania na lewo szmaty. Ci oszusści to policja żarty policjantów kaczor donald Izrael, Urkaina, Rosja PRL niemcy.  
 Ci oszuści to dresy.
+Ta dzika Policja Cerrffur i disnej ta brzydota dresów to Bezosy ich moda. 
