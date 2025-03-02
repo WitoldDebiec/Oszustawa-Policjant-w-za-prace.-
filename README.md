@@ -114,3 +114,4 @@ Wini tych rządów są Politycy i ci co śrubują śrubą Polityki i ustaw. A ni
 Biblie napisali złodzieje. To taki oszczędzcz. 
 Jak chccie normalności nie Kaczora Donalda to zwolnijcie Kaliego Linuxa z Pracy i polityków na świecie. Wróci elegancja u kobiet bez biedy ich wyślijcie do Izraela i Ukrainy razem z oszczędzaczami. Jurka MAGDZIŃSKIEGO TEŻ TRZEBA KOPNĄĆ W DUPĘ tego z Deus Ex. Olejcie pojęcie oszczędzacze i awantury kaliego nie ma oszczędzaczy to politycy to wymyślili nie ja ich ganiajcie. Ja tylko wiem. 
 Te zkazy to też Rosja. Trzeba zbudować tokamaki to wszystko wróci. 
+Te zasady i szablony rozmwó i życia wymyślili Politycy. Co do oszczędzaczy to one są półśrodkami do celu i nie są to tokamaki i nie łądnie wyglądają i nie uszyje się ładnych ubrań. Politycy są do zmiany. 
