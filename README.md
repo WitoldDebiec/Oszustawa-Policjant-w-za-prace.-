@@ -110,3 +110,4 @@ To rząd jest zakochany w tych pometach i nie chce dać piniedzy.
 Tamte ubrania za czasóe kobiet epoki Tesli chodzi o płaszcze i te koce kobiety nie śmierdziały. Dziś przez tą policje ludzie w głowie mają kupe. Diety jakie są to rodzą się otyli. 
 Moda 112 997 Kali Linux oszczędzacz to moda dla niepełnosprawnych i bezdomnych. 
 Te rządy autystyków i cięcia budrzetowe to rządy jasnosików. 
+Wini tych rządów są Politycy i ci co śrubują śrubą Polityki i ustaw. A nie oszczędzacze. 
