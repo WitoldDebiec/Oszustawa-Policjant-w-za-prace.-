@@ -143,3 +143,4 @@ Indianie i post mafia to też to samo dziecko pracy i autyzmu też zakazują i d
 Te utrudnienia w prawie i życiu to wymysły post mafi. Szef post mafi to watykan. 
 Post mafię hipisów hispterów nazywali kiedyś pieszczotliwie flewerws and bawerws. 
 Dresy Bezosa Post mafi mówią żuć się pod tory jak nasze rządy ci nie pasują. Tak Mówią. 
+Oni są do zwolnienia. 
