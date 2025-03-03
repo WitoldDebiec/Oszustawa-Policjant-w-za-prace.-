@@ -131,3 +131,4 @@ Te alerty to greenpeace ochrona środowiska Kali Linux.
 Jak pozbędziemy się tych fundacji NGO znów wórci świat człowieka. 
 Wojny też znikną.
 To policja oszukuje. 
+Co można nazwać oszczędzaczem jedzenie np hamburger oszczędzacz do promdu leki oszczedzcze wody itp. 
