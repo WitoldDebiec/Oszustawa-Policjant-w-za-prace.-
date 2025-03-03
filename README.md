@@ -128,3 +128,4 @@ Przez nich jest bród i malaria. Lekarzez przejmują się swoimi przyjaciółmi 
 Ta Policja dba o świnie dosie o bród i choroby. 
 To NGO Greenspin robi to zło tych kaleków ten ich sport. 
 Te alerty to greenpeace ochrona środowiska Kali Linux. 
+Jak pozbędziemy się tych fundacji NGO znów wórci świat człowieka. 
