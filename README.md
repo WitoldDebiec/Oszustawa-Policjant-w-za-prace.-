@@ -136,4 +136,4 @@ Ci Nobliści to legia sparta i bezosy.
 Cały ten fajans kręci się woku lotto i tych zadym. To jest Post mafia. 
 Żeby były wiadomości post mafia musi kogoś pobić lub okraść czy zabić. 
 Oszustwo Post Mafi jest bardzo proste. W grach Wideo za wszsytko płacą za prace itp czy punkty i to dużo i za wszystko się tam płaci. W życiu nie chcą płacić i tak doszedłem do pojącia post mafi. 
-Pracownicy firm post mafi są tylko umięśnieni i nie dożywieni. 
+Pracownicy firm post mafi są tylko umięśnieni i nie dożywieni źle opłacani. 
