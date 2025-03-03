@@ -134,3 +134,4 @@ To policja oszukuje.
 Co można nazwać oszczędzaczem jedzenie np hamburger oszczędzacz do promdu leki oszczedzcze wody itp. 
 Ci Nobliści to legia sparta i bezosy. 
 Cały ten fajans kręci się woku lotto i tych zadym. To jest Post mafia. 
+Żeby były wiadomości post mafia musi kogoś pobić lub okraść czy zabić. 
