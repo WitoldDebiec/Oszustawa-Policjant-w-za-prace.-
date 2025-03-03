@@ -139,3 +139,4 @@ Oszustwo Post Mafi jest bardzo proste. W grach Wideo za wszsytko płacą za prac
 Pracownicy firm post mafi są tylko umięśnieni i nie dożywieni źle opłacani. 
 Jak Pacownicy upominają się z ręcistami o zarobki straszom podaniem Dikofloru leku aby być hipisem i bezdomnym z sercem. Tyle o post mafi. 
 Post mafia i legia sparta jest z Gry SkyRim i Wiedźmin takie oni mają zasady ta Policja jest z tych gier. 
+Indianie i post mafia to też to samo dziecko pracy i autyzmu też zakazują i dają oszczędzacze biedzie bo sami ją stworzyli kradzieżami urzędowymi. 
