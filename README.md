@@ -122,3 +122,4 @@ Ta Policja dresów i tych mediów to Bezosy.
 Ta Policja to nowbliści piszą o nas prace to są łobuzy. Kiedyś wszystko wróci do normy. Konice świata to też nobliści ta Policja. 
 Tych noblistów trzeba zamknąć w więzeniach dla obłąkanych. Mowa o tych przewrotach polityki ubrań itp systemy.
 Grinspis oszukało jak ta policja na tym aby oszczędzać na wodzie i energi elektrycznej. Afery oszczędzaczy i wirusa echo dot kali wydzierającego się nie ma oszczędzaczy. Foljarze.  
+Dla ochrony klimatu i tego sportu tylko muchozol. 
