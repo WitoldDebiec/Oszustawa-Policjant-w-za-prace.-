@@ -125,3 +125,4 @@ Grinspis oszukało jak ta policja na tym aby oszczędzać na wodzie i energi ele
 Dla ochrony klimatu i tego sportu tylko muchozol. 
 Oni to maszyny co się nie myją. Zwierzęta SkyNet. Od ochrony środowiska. 
 Przez nich jest bród i malaria. Lekarzez przejmują się swoimi przyjaciółmi bakteriami i wirusami. 
+Ta Policja dba o świnie dosie o bród i choroby. 
