@@ -141,3 +141,4 @@ Jak Pacownicy upominają się z ręcistami o zarobki straszom podaniem Dikofloru
 Post mafia i legia sparta jest z Gry SkyRim i Wiedźmin takie oni mają zasady ta Policja jest z tych gier. 
 Indianie i post mafia to też to samo dziecko pracy i autyzmu też zakazują i dają oszczędzacze biedzie bo sami ją stworzyli kradzieżami urzędowymi. 
 Te utrudnienia w prawie i życiu to wymysły post mafi. Szef post mafi to watykan. 
+Post mafię hipisów hispterów nazywali kiedyś pieszczotliwie flewerws and bawerws. 
