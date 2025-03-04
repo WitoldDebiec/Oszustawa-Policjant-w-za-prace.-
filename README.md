@@ -219,3 +219,4 @@ Ta mafia i ci kryminalni i wesołowska ci co kasę naszą dają na NGO harrp afe
 Śmieciem Post Mafi a własiciewie skarbnikiem jest super komputer Statek Borys. 
 Papierz jest śmieciem. 
 Post mafia to bedomni. Post mafia karze płacić ukryte podatki. Papierz to wódz bedomnych. 
+Oni to szlachta co uczepiła się pańszczynianej klamki. 
