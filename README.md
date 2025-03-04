@@ -159,4 +159,4 @@ Przez Lewą TV nie mam już siły wstawać.
 Ci obłąkani bezdomni te gwiazdy to wykolejęcy. Dla mnie to dusze z nawiedzonych domów i mieszkań. 
 Oni to dokuczajewicze ta post mafia. 
 Nie pokazują w TV i grach przyszłości mieszkań i domów z przyszłości czy aut przyszłości czy statków przyszłości za to pokazją teraźniejszość średniowiecza i PRL. Nie ma zimy i mody zimowej u kobiet i mężczyn jest ciepło jak w Kaliforni w niebie jak oni to nazywają sterują pogodą w USA Los Angeles. Promują biedę na lewo oszczędzności i oszczędzacze i swego rodzaju młyn mopsu i ciucholandów i kóretek. Promują biedę i otysłość i brzydotę. To jest ten wirus.   
-Lewy to wirus. Męczą tylko do grobu. 
+Lewy to wirus. Męczą tylko do grobu tą TV i mediami i grami. Żyć się nie chce. 
