@@ -220,3 +220,4 @@ Ta mafia i ci kryminalni i wesołowska ci co kasę naszą dają na NGO harrp afe
 Papierz jest śmieciem. 
 Post mafia to bedomni. Post mafia karze płacić ukryte podatki. Papierz to wódz bedomnych. 
 Oni to szlachta co uczepiła się pańszczynianej klamki. 
+Ci z Deus Ex też są chorzy na głowę. 
