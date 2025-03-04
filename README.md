@@ -149,3 +149,4 @@ Cała ta Policja to profil lewy. Oferty pracy tylko za 1700 zł.
 Post mafia już się popisała wojnami w histori mam ich dość. Dlatego mówię że ci od wojen to post mafia jest. 
 Ta cała Policja to Post mafia jest. Cały ten tetatr wojeny i UFO to Posta mafia. Prawi siedzą w domu. 
 Ci Show meni na nobla i oskara z policji mają gdzieś relacje rodzine prawe. Na koncertach kłamią że kochają publiczność to wampiry. 
+Rządzą nimi Iluminaci na wielu planetach i poziomach. 
