@@ -186,3 +186,4 @@ Jak wrócę do Nieba na Tron powieszę Post Mafię i Bezosy sam.
 Przez Bezosów żyję w biedzie sam. 
 W Zaświatach dam im w mordę. 
 Wyleczcie te 2 Księżniczki z Autyzmu i możecie mi je dać kiedyś za 100 lat albo za 25 lat. Na starość je też wyleczcie. Wybaczę im ale Bezos i POST MAFIA MA DOSTAĆ W ŁEB. Wyslijcie do nieba urzędnika. Ja żyje na ziemi ja Męda bóg Post Odyn Iron Men god Witold Dębiec fecbook jest lewy i w to nie wierzy. 
+Jak dla was przegieli pałę że mało się zarabia możecie im zrobić streng lab Qeke 4. 
