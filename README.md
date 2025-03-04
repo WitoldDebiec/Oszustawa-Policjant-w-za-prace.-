@@ -170,3 +170,4 @@ Bezos i ta Policja to zwierzęta od Dikofloru a masz prawaku dawaj Alimenty jak 
 Teraz ta Policja to jestem gnojem a na lewo jestem dorosły. Teraz promują same alimenty i oszczędzacze i 30 lat razem porzyczka kobiety i następna gedatria i dom starców wośp gepard babka im back. 
 Posta mafia i bezosy to Husaria i móje oszczędności zamberga brauna mój oszczędzacz. Ubodzy rycerze jezusa i assassynów. 
 Kiedyś Alexa Cheng była ładna jako człowiek. Dziś przez media i oszczędzacze i alimenty jest nikim. Media niszczą wszystko. Teraz ona to może się zapisać do churu gpardów babek mocherów. 
+Teraz w Alexe Cheng wstąpił duch żyda mochera w jej sercu jest żyd mocher i jakiś borys haker cybernetyk deus ex.    
