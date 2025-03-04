@@ -178,3 +178,4 @@ Teraz to Gepard Babki scoajl mops Amzon bieda. Kiedyś były prawe i były księ
 Post mafia to cały ten Martin Tajemniczy FBI Bezosy. 
 Post Mafia karze wymieniać lotto i majątki na zegarki na lewo.
 Bezos i Borys z Bezosa Post mafi jest profil lewy 112 997 117 legia sparta. 
+To minimaliści rządzą światem. 
