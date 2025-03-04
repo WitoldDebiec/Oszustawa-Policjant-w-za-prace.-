@@ -215,3 +215,4 @@ Te kary to NGO. Oni jeszcze z podatku lub do puszki biorą parę groszy.
 Watykan to Przekleństwo Chama. 
 Wszystkie NGO wymyślił i włada Izrael. 
 Ta policja Niebo to austystyczne dzieci co mają 2 tygodnie. 
+Ta mafia i ci kryminalni i wesołowska ci co kasę naszą dają na NGO harrp afery i te tłuki z izraelskiej prasy drogi krzyżowej to Bezos i Izrael. 
