@@ -160,3 +160,4 @@ Ci obłąkani bezdomni te gwiazdy to wykolejęcy. Dla mnie to dusze z nawiedzony
 Oni to dokuczajewicze ta post mafia. 
 Nie pokazują w TV i grach przyszłości mieszkań i domów z przyszłości czy aut przyszłości czy statków przyszłości za to pokazją teraźniejszość średniowiecza i PRL. Nie ma zimy i mody zimowej u kobiet i mężczyn jest ciepło jak w Kaliforni w niebie jak oni to nazywają sterują pogodą w USA Los Angeles. Promują biedę na lewo oszczędzności i oszczędzacze i swego rodzaju młyn mopsu i ciucholandów i kóretek. Promują biedę i otysłość i brzydotę. To jest ten wirus.   
 Lewy to wirus. Męczą tylko do grobu tą TV i mediami i grami. Żyć się nie chce. 
+Ukrywają przez prawicą sekrety ożywiania zmarłych ta post mafia znana jest z mordrstw prawicy harrp radiem lub wypadków drogowych. Ożywianie zmałrych jest możliwe ale trzeba lat badań o tym i starania się o niskie ceny nie jak Bezosy co kradną majątki. 
