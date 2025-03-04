@@ -204,3 +204,4 @@ Post mafia się nazywa dlatego że oni mówią czas na Post Wysiłek sport Qeke 
 Gównymi Politykami jest Post Mafia i Bezosy i Politycy z Post Mafi w Polsce i na Świecie areny sportu i manualizmu post wysiłek sport hipis live Time line dlatego oni to Post mafia. 
 Wszystkim mówią post wysiłek. 
 Oni karają za durze zarobki Post Wysiłkiem i zakwasami post. 
+Bezosy to nie mechatronicy tylko W-Fefiści. 
