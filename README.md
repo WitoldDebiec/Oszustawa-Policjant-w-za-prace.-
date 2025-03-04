@@ -214,3 +214,4 @@ Oni liczą kasę od wieku urodzenia. Tak wymyślił Bezos i Post mafia Borys. Od
 Te kary to NGO. Oni jeszcze z podatku lub do puszki biorą parę groszy. 
 Watykan to Przekleństwo Chama. 
 Wszystkie NGO wymyślił i włada Izrael. 
+Ta policja Niebo to austystyczne dzieci co mają 2 tygodnie. 
