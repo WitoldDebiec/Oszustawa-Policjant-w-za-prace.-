@@ -181,3 +181,4 @@ Bezos i Borys z Bezosa Post mafi jest profil lewy 112 997 117 legia sparta.
 To minimaliści rządzą światem. 
 Bezosy to maksymy Lancherto w duchu raka ze mną. 
 Te buraki z Post mafi Bezosy to murzyny są. 
+Oni to ich niebo Los Angeles zbudował mafiozo brat Czarny. 
