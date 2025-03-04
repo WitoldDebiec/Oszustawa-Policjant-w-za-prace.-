@@ -222,3 +222,4 @@ Post mafia to bedomni. Post mafia karze płacić ukryte podatki. Papierz to wód
 Oni to szlachta co uczepiła się pańszczynianej klamki. 
 Ci z Deus Ex też są chorzy na głowę. 
 Fachwocy z TV opowiadali o nich enigmatycznie jak Ksenomorfy mase tajemnic i zagadek tłuczyli jak dziecią. Ci ludzie iluminaci od sportu to Post Mafia i post wysiłek. 
+Lalom Wybaczę ale post mafi nie. Co do moich ślubów nie chce się z nimi żenić bo ukradły pieniadze w ukrytych podatkach i karzą czekać do wieku 150 lat aby miec dużo pieniedzy. Za to im tego nie wybaczę i ślubom mówię nie mowa o mnie ze mną.  
