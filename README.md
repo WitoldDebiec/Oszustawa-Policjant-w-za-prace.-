@@ -146,3 +146,4 @@ Dresy Bezosa Post mafi mówią żuć się pod tory jak nasze rządy ci nie pasuj
 Oni są do zwolnienia. 
 Lewy się wyprowadzi na Marsa bo złodziej i morderca show men. 
 Cała ta Policja to profil lewy. Oferty pracy tylko za 1700 zł. 
+Post mafia już się popisała wojnami w histori mam ich dość. Dlatego mówię że ci od wojen to post mafia jest. 
