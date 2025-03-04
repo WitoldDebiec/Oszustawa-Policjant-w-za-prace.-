@@ -157,3 +157,4 @@ Wszystkie te media ostanie dziesięciolecia w mediach to Izrael gry też izrael 
 Z prawymi w naszym DNA był jakiś lewy Wirus DNA. Że oni się urodzili. 
 Przez Lewą TV nie mam już siły wstawać.
 Ci obłąkani bezdomni te gwiazdy to wykolejęcy. Dla mnie to dusze z nawiedzonych domów i mieszkań. 
+Oni to dokuczajewicze ta post mafia. 
