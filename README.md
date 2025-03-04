@@ -173,3 +173,4 @@ Kiedyś Alexa Cheng była ładna jako człowiek. Dziś przez media i oszczędzac
 Teraz w Alexe Cheng wstąpił duch żyda mochera w jej sercu jest żyd mocher i jakiś borys haker cybernetyk deus ex.    
 Dziś psot mafia wiesza za prawą postawę życia. Kreuje dzicz Jeff Bezos Time Line Jude Time Line.  
 Kiedyś były Hot dziś to cold men doge coin Amzon worker.  
+Bezos i psot mafia i iluminaci to niepełnsoprawni jak legia sparta i te wojny niepełnsoprawnych. 
