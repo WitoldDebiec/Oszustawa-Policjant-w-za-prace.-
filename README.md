@@ -198,3 +198,4 @@ Grzechy Post Mafi to: Niskie zarobki, Niskie zasiłki i emerytury, Nieskie wygra
 W Umyśle post mafia i Bezos ma 2 tygodnie. 
 Do grzechów Post mafi można zaliczyć jeszcze popieranie sportu że każdy pracownik jest biedny i umięśniony a Post mafia jest gruba chodzi o ich góru.
 Ci menele to też post mafia ich robota te ubrania z kloszardowego sklepu. 
+Te kloszardy to Post mafia i te pachnidła. 
