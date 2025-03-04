@@ -165,3 +165,4 @@ Star Trek i Gwiezne wojny to też Bezosy. Bezosów w niebie trzeba zapytać i ty
 Trzeba sobie zadać pytanie kiedy wyjdzie z nich ten cavamen ten neradeltalczyk. Kobiety w płaszczu i kocu zwoltex arosa były dopiero w roku 3000. Ale to było pokoelnie homo sapiens inteligentni byli i etyczni i prawi. Bez chorób genetycznych i psychicznych i autyzmu bez zarazy. Lewi chorują na choroby na wirus. Wirus to Bezosy. 
 Wysza szkoła cebuli i czosnku to Bezosy oni są lewi ukryci pod różnymi innymi nazwiskami. 
 Alexa Chent kiedyś pod moją opieką była człowiekiem nosiła płaszcze i koce zwoltex arosa z przyszłości była ideałem mojej żony ja ją wychowałem na prawo. Teraz przez tą Policje tych masonów i szambiarzy Alexa Cehng jest Gepardem Babkom. Kiedyś była atrakcyjna i zawsze mołoda i modna dziewczyna do seksu pod kocyk. Dziś to Gepard Babka. Dzika jest. 
+Teraz przyleciało po nich UFO. 
