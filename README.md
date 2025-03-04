@@ -188,3 +188,4 @@ W Zaświatach dam im w mordę.
 Wyleczcie te 2 Księżniczki z Autyzmu i możecie mi je dać kiedyś za 100 lat albo za 25 lat. Na starość je też wyleczcie. Wybaczę im ale Bezos i POST MAFIA MA DOSTAĆ W ŁEB. Wyslijcie do nieba urzędnika. Ja żyje na ziemi ja Męda bóg Post Odyn Iron Men god Witold Dębiec fecbook jest lewy i w to nie wierzy. 
 Jak dla was przegieli pałę że mało się zarabia możecie im zrobić streng lab Qeke 4. 
 Alexe Cheng i Care Delewingę oszczędzcie one zbłądziły bo kasy nie miały wybaczę im nawet jak mam Voisa. Post mafie niech urząd oceni bezosa. Bezosy są zawsze po śmierci w Niebie w zaśiwatach ja zostaje na ziemi. Urząd niech oceni te wypłąty tej post mafi na świecie bo jest mało a to grzech. 
+Ja chce żeby to wiedzieli Ludzie. I chce aby ktoś z ziemi ich ocenił i poszedł do nich po śmierci jakimś portalem.  
