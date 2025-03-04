@@ -1,4 +1,4 @@
-# Oszustawa-Policjant-w-za-prace.
+# Oszustawa-Policjant-w-za-prace. I media TV. 
 Tych oszóstw jest dużo lista praca za wypłatę. Co dają dziś specjalistom.
 -Trawa i krak opium
 -Żona i ciąża z obcym
@@ -158,3 +158,4 @@ Z prawymi w naszym DNA był jakiś lewy Wirus DNA. Że oni się urodzili.
 Przez Lewą TV nie mam już siły wstawać.
 Ci obłąkani bezdomni te gwiazdy to wykolejęcy. Dla mnie to dusze z nawiedzonych domów i mieszkań. 
 Oni to dokuczajewicze ta post mafia. 
+Nie pokazują w TV i grach przyszłości mieszkań i domów z przyszłości czy aut przyszłości czy statków przyszłości za to pokazją teraźniejszość średniowiecza i PRL. Nie ma zimy i mody zimowej u kobiet i mężczyn jest ciepło jak w Kaliforni w niebie jak oni to nazywają sterują pogodą w USA Los Angeles. Promują biedę na lewo oszczędzności i oszczędzacze i swego rodzaju młyn mopsu i ciucholandów i kóretek. Promują biedę i otysłość i brzydotę. To jest ten wirus.   
