@@ -167,3 +167,4 @@ Wysza szkoła cebuli i czosnku to Bezosy oni są lewi ukryci pod różnymi innym
 Alexa Chent kiedyś pod moją opieką była człowiekiem nosiła płaszcze i koce zwoltex arosa z przyszłości była ideałem mojej żony ja ją wychowałem na prawo. Teraz przez tą Policje tych masonów i szambiarzy Alexa Cehng jest Gepardem Babkom. Kiedyś była atrakcyjna i zawsze mołoda i modna dziewczyna do seksu pod kocyk. Dziś to Gepard Babka. Dzika jest. 
 Teraz przyleciało po nich UFO. 
 Bezos i ta Policja to zwierzęta od Dikofloru a masz prawaku dawaj Alimenty jak Karze Bezos Duda. Z lasu są. Dzicy. 
+Teraz ta Policja to jestem gnojem a na lewo jestem dorosły. Teraz promują same alimenty i oszczędzacze i 30 lat razem porzyczka kobiety i następna gedatria i dom starców wośp gepard babka im back. 
