@@ -205,3 +205,4 @@ Gównymi Politykami jest Post Mafia i Bezosy i Politycy z Post Mafi w Polsce i n
 Wszystkim mówią post wysiłek. 
 Oni karają za durze zarobki Post Wysiłkiem i zakwasami post. 
 Bezosy to nie mechatronicy tylko W-Fefiści. 
+To przez post mafię nie ma na świenta. Oni promują post zakupy i urzywane rzeczy. 
