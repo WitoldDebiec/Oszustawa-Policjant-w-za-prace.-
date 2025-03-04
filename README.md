@@ -175,4 +175,4 @@ Dziś psot mafia wiesza za prawą postawę życia. Kreuje dzicz Jeff Bezos Time 
 Kiedyś były Hot dziś to cold men doge coin Amzon worker.  
 Bezos i psot mafia i iluminaci to niepełnsoprawni jak legia sparta i te wojny niepełnsoprawnych. 
 Teraz to Gepard Babki scoajl mops Amzon bieda. Kiedyś były prawe i były księżniczkami.
-Post mafia to cały ten Martin Tajemniczy FBI. 
+Post mafia to cały ten Martin Tajemniczy FBI Bezosy. 
