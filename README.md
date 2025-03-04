@@ -150,3 +150,4 @@ Post mafia już się popisała wojnami w histori mam ich dość. Dlatego mówię
 Ta cała Policja to Post mafia jest. Cały ten tetatr wojeny i UFO to Posta mafia. Prawi siedzą w domu. 
 Ci Show meni na nobla i oskara z policji mają gdzieś relacje rodzine prawe. Na koncertach kłamią że kochają publiczność to wampiry. 
 Rządzą nimi Iluminaci na wielu planetach i poziomach. 
+Lewi mają mały spichlerz prai duży. Lewi mają duże hangary i zbrojownie. 
