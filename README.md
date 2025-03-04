@@ -155,3 +155,5 @@ Nie głosujcie na Post Mafię ten geming. Nie głosujcie na gwiezdne wojny i sta
 Ci lewi to psychopaci z autyzmem i chorobami psychicznymi i wirusem Hiv. Do tego ćpają. 
 Wszystkie te media ostanie dziesięciolecia w mediach to Izrael gry też izrael gazety też. Przeszedłem 33 lata drogi krzyżowej w TV mam dość post mafi i piszę czemu mało się zarabia. Przez nich. Oglądałem ich. 
 Z prawymi w naszym DNA był jakiś lewy Wirus DNA. Że oni się urodzili. 
+Przez Lewą TV nie mam już siły wstawać.
+Ci obłąkani bezdomni te gwiazdy to wykolejęcy. Dla mnie to dusze z nawiedzonych domów i mieszkań. 
