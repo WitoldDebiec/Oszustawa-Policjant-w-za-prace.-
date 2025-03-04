@@ -190,3 +190,4 @@ Jak dla was przegieli pałę że mało się zarabia możecie im zrobić streng l
 Alexe Cheng i Care Delewingę oszczędzcie one zbłądziły bo kasy nie miały wybaczę im nawet jak mam Voisa. Post mafie niech urząd oceni bezosa. Bezosy są zawsze po śmierci w Niebie w zaśiwatach ja zostaje na ziemi. Urząd niech oceni te wypłąty tej post mafi na świecie bo jest mało a to grzech. 
 Ja chce żeby to wiedzieli Ludzie. I chce aby ktoś z ziemi ich ocenił i poszedł do nich po śmierci jakimś portalem.  
 Sam Stoun też dostanie w łeb on jest góru post mafi. Mają się popłakać jak dzieci tyle im wystarczy. Urząd ich oceni. Alexe Cheng i Care Delevingę chce widzieć w przyszłości ale mają być wyleczone. Post mafia ma dostać w mordę ich odelegujcie na inne planety po śmierci.  
+Na ziemi chce przyszłości nie PRL nie semici. Semity dostaną po śmieci w dupę krypto też dostanie po dupie.   
