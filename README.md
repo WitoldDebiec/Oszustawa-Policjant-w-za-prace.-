@@ -172,3 +172,4 @@ Posta mafia i bezosy to Husaria i móje oszczędności zamberga brauna mój oszc
 Kiedyś Alexa Cheng była ładna jako człowiek. Dziś przez media i oszczędzacze i alimenty jest nikim. Media niszczą wszystko. Teraz ona to może się zapisać do churu gpardów babek mocherów. 
 Teraz w Alexe Cheng wstąpił duch żyda mochera w jej sercu jest żyd mocher i jakiś borys haker cybernetyk deus ex.    
 Dziś psot mafia wiesza za prawą postawę życia. Kreuje dzicz Jeff Bezos Time Line Jude Time Line.  
+Kiedyś były Hot dziś to cold men doge coin Amzon worker.  
