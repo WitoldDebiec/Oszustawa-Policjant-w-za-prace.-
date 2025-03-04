@@ -192,3 +192,4 @@ Ja chce żeby to wiedzieli Ludzie. I chce aby ktoś z ziemi ich ocenił i poszed
 Sam Stoun też dostanie w łeb on jest góru post mafi. Mają się popłakać jak dzieci tyle im wystarczy. Urząd ich oceni. Alexe Cheng i Care Delevingę chce widzieć w przyszłości ale mają być wyleczone. Post mafia ma dostać w mordę ich odelegujcie na inne planety po śmierci.  
 Na ziemi chce przyszłości nie PRL nie semici. Semity dostaną po śmieci w dupę krypto też dostanie po dupie.   
 Jak ktoś pyta czemy mało zarabia pieniedzy to powiem tylko tyle okradła go post mafia NGO. 
+Ten Autyzm odelegowujcie na inne światy. 
