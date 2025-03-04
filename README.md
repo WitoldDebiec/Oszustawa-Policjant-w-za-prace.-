@@ -211,3 +211,4 @@ Przez Post Mafie nie ma na świenta.
 Pajace tej Policji są w Kaliforni w Los Angeles jak by ktoś pytał co to Niebo. Piekło to Rosja. 
 Ci aktorzy ci menele zabierają wam kasę. To jest Tajna wiedza. 
 Oni liczą kasę od wieku urodzenia. Tak wymyślił Bezos i Post mafia Borys. Odsetki też naliczane od wieku. 
+Te kary to NGO. Oni jeszcze z podatku lub do puszki biorą parę groszy. 
