@@ -151,3 +151,4 @@ Ta cała Policja to Post mafia jest. Cały ten tetatr wojeny i UFO to Posta mafi
 Ci Show meni na nobla i oskara z policji mają gdzieś relacje rodzine prawe. Na koncertach kłamią że kochają publiczność to wampiry. 
 Rządzą nimi Iluminaci na wielu planetach i poziomach. 
 Lewi mają mały spichlerz prai duży. Lewi mają duże hangary i zbrojownie. 
+Nie głosujcie na Post Mafię ten geming. Nie głosujcie na gwiezdne wojny i star trek i Seriusa Sama Sona. Startek można zrobić prawy jak będę prawi i moralni i etyczni ludzie bez przlewania krwi i kradzieży.  
