@@ -224,3 +224,4 @@ Ci z Deus Ex też są chorzy na głowę.
 Fachwocy z TV opowiadali o nich enigmatycznie jak Ksenomorfy mase tajemnic i zagadek tłuczyli jak dziecią. Ci ludzie iluminaci od sportu to Post Mafia i post wysiłek. 
 Lalom Wybaczę ale post mafi nie. Co do moich ślubów nie chce się z nimi żenić bo ukradły pieniadze w ukrytych podatkach i karzą czekać do wieku 150 lat aby miec dużo pieniedzy. Za to im tego nie wybaczę i ślubom mówię nie mowa o mnie ze mną.  
 Zaręczyną z tymi lalami mówie nie bo akcetptują małe płace i post mafie i NGO. 
+Post mafia i Bezosy i Politycy to koljeny numer Kaczor Donald. A te lale zachowują się jak kaczory. 
