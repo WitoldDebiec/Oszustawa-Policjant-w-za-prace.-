@@ -193,3 +193,4 @@ Sam Stoun też dostanie w łeb on jest góru post mafi. Mają się popłakać ja
 Na ziemi chce przyszłości nie PRL nie semici. Semity dostaną po śmieci w dupę krypto też dostanie po dupie.   
 Jak ktoś pyta czemy mało zarabia pieniedzy to powiem tylko tyle okradła go post mafia NGO. 
 Ten Autyzm odelegowujcie na inne światy. 
+To że ktoś mało zarabia to przez Bezosa i Post mafię mało zarabia przez zasady Lanczerto. 
