@@ -200,3 +200,4 @@ Do grzechów Post mafi można zaliczyć jeszcze popieranie sportu że każdy pra
 Ci menele to też post mafia ich robota te ubrania z kloszardowego sklepu. 
 Te kloszardy to Post mafia i te pachnidła. 
 Post mafia zabiera nasze pieniądze na fundusze inwestycyjne w poatkach te niskie wypłaty ta bieda to Post Mafia Bezosy. Jak ktoś by pytał czemu mało zarbia się na świecie na karzdym stanowisku pracy. 
+Post mafia się nazywa dlatego że oni mówią czas na Post Wysiłek sport Qeke Arena. To jest Post mafia.  
