@@ -199,3 +199,4 @@ W Umyśle post mafia i Bezos ma 2 tygodnie.
 Do grzechów Post mafi można zaliczyć jeszcze popieranie sportu że każdy pracownik jest biedny i umięśniony a Post mafia jest gruba chodzi o ich góru.
 Ci menele to też post mafia ich robota te ubrania z kloszardowego sklepu. 
 Te kloszardy to Post mafia i te pachnidła. 
+Post mafia zabiera nasze pieniądze na fundusze inwestycyjne w poatkach te niskie wypłaty ta bieda to Post Mafia Bezosy. Jak ktoś by pytał czemu mało zarbia się na świecie na karzdym stanowisku pracy. 
