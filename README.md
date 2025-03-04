@@ -196,3 +196,4 @@ Ten Autyzm odelegowujcie na inne światy.
 To że ktoś mało zarabia to przez Bezosa i Post mafię mało zarabia przez zasady Lanczerto. 
 Grzechy Post Mafi to: Niskie zarobki, Niskie zasiłki i emerytury, Nieskie wygrane w lotto lub żadne zamiana majątku na Zegarek lub Kobietę to są ich grzechy za kobietę kiedyś płaciło się mało nie fortunę, Kolesiostwo i układy rodzinne.   
 W Umyśle post mafia i Bezos ma 2 tygodnie. 
+Do grzechów Post mafi można zaliczyć jeszcze popieranie sportu że każdy pracownik jest biedny i umięśniony a Post mafia jest gruba chodzi o ich góru.  
