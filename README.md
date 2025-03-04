@@ -207,3 +207,4 @@ Oni karają za durze zarobki Post Wysiłkiem i zakwasami post.
 Bezosy to nie mechatronicy tylko W-Fefiści. 
 To przez post mafię nie ma na świenta. Oni promują post zakupy i urzywane rzeczy. 
 To Post Mafia zabiera durze wypłaty z kont na rzecz NGO. Renty normalnie powiny być na poziomie 12000 zł a są na poziomie 1800 zł. Emeyrtury powiny być na poziomie 25 000 zł a są 600 zł. Zasiłki 15000 zł a są 1400 zł. Wypłaty są na poziomie 1700 zł a powiny być na poziomie 50000 zł. To jest zjawisko Post Mafi. PKB się nie zgadza. Bezos i Elon Mask wszystko zabiera. 
+Przez Post Mafie nie ma na świenta. 
