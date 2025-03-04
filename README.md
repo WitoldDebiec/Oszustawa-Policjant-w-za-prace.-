@@ -221,3 +221,4 @@ Papierz jest śmieciem.
 Post mafia to bedomni. Post mafia karze płacić ukryte podatki. Papierz to wódz bedomnych. 
 Oni to szlachta co uczepiła się pańszczynianej klamki. 
 Ci z Deus Ex też są chorzy na głowę. 
+Fachwocy z TV opowiadali o nich enigmatycznie jak Ksenomorfy mase tajemnic i zagadek tłuczyli jak dziecią. Ci ludzie iluminaci od sportu to Post Mafia i post wysiłek. 
