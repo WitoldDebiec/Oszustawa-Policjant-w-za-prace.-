@@ -183,3 +183,4 @@ Bezosy to maksymy Lancherto w duchu raka ze mną.
 Te buraki z Post mafi Bezosy to murzyny są. 
 Oni to ich niebo Los Angeles zbudował mafiozo brat Czarny. 
 Jak wrócę do Nieba na Tron powieszę Post Mafię i Bezosy sam. 
+Przez Bezosów żyję w biedzie sam. 
