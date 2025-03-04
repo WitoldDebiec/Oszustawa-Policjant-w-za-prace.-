@@ -171,3 +171,4 @@ Teraz ta Policja to jestem gnojem a na lewo jestem dorosły. Teraz promują same
 Posta mafia i bezosy to Husaria i móje oszczędności zamberga brauna mój oszczędzacz. Ubodzy rycerze jezusa i assassynów. 
 Kiedyś Alexa Cheng była ładna jako człowiek. Dziś przez media i oszczędzacze i alimenty jest nikim. Media niszczą wszystko. Teraz ona to może się zapisać do churu gpardów babek mocherów. 
 Teraz w Alexe Cheng wstąpił duch żyda mochera w jej sercu jest żyd mocher i jakiś borys haker cybernetyk deus ex.    
+Dziś psot mafia wiesza za prawą postawę życia. Kreuje dzicz Jeff Bezos Time Line Jude Time Line.  
