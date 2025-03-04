@@ -194,3 +194,4 @@ Na ziemi chce przyszłości nie PRL nie semici. Semity dostaną po śmieci w dup
 Jak ktoś pyta czemy mało zarabia pieniedzy to powiem tylko tyle okradła go post mafia NGO. 
 Ten Autyzm odelegowujcie na inne światy. 
 To że ktoś mało zarabia to przez Bezosa i Post mafię mało zarabia przez zasady Lanczerto. 
+Grzechy Post Mafi to: Niskie zarobki, Niskie zasiłki i emerytury, Nieskie wygrane w lotto lub żadne zamiana majątku na Zegarek lub Kobietę to są ich grzechy za kobietę kiedyś płaciło się mało nie fortunę, Kolesiostwo i układy rodzinne.   
