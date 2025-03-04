@@ -174,3 +174,4 @@ Teraz w Alexe Cheng wstąpił duch żyda mochera w jej sercu jest żyd mocher i 
 Dziś psot mafia wiesza za prawą postawę życia. Kreuje dzicz Jeff Bezos Time Line Jude Time Line.  
 Kiedyś były Hot dziś to cold men doge coin Amzon worker.  
 Bezos i psot mafia i iluminaci to niepełnsoprawni jak legia sparta i te wojny niepełnsoprawnych. 
+Teraz to Gepard Babki. Kiedyś były prawe i były księżniczkami. 
