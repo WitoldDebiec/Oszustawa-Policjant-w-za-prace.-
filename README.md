@@ -255,3 +255,4 @@ To Bezosy karzą pracować za 4 zł na H.
 Wspólne naziwsko żydów tej postmafi to Bezosy oni im zmienili naziwska pozostałym w rodzinie. Afery Ufo i Elo Him to Elon Mask. Oni to nie bogowie. 1 Kobietę zabrali Adamowi i zbałamucili zgwałcili wirusem.
 To wszystko to są Bezosy. Bezos mam 1000M mieszkanie lub 5000M czy 7000M.   
 Czemu mówię post mafia bo trzeba grać herosa aby coś dostać bo gazeta nie ma co pisać dla sztuki. 
+To Bezos od niepamientych czasów podnosi na ludzi rękę. 
