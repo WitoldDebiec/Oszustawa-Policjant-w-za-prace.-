@@ -244,3 +244,5 @@ Oni nie zabrali kasy skandynawi tamci mają kasę. To my w europie i na świecie
 Bezos daje ludziom oszczędzacze co nie działają i karze oszczędzać. Kiedyś tak nie było. To jest jakiś wirus z tymi eleitami. 
 W Kieszeń wzieli też do systemu. 
 Po śmierci odelegowuje się na inną ziemie innym też radzę się przenieść do innej rodziny. Zdala od Bezos. 
+Kiedyś było na mieszkanie i dom na raty.
+Oszczędzacze to herezej tych wariatów. Nie da się odłożyć z 1000 zł czy z tego żyć czy spłacać kredyt. 
