@@ -248,3 +248,4 @@ Kiedyś było na mieszkanie i dom na raty.
 Oszczędzacze to herezej tych wariatów. Nie da się odłożyć z 1000 zł czy z tego żyć czy spłacać kredyt. 
 Ich sposby oszczędzania to legendy i bajki. Oni zabrali nam pieniądze narodom. 
 Izraelaska post mafia Bezosy nosili kiedyś nazwę legia sparta. 
+Możecie przekazać że nie potrzebujemu tu cara Rosji Bezosów. 
