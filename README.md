@@ -236,3 +236,4 @@ To żydzi kochają się od nowa rodzić niż lecieć w kosmos to żydzi karzą s
 Te nie powodzenia historyczne to Izrael m.i. Iverum veto. 
 Post Mafia Bezosy robi w konia z budrzetem finsasowym. 
 Te elity to menele. 
+Bezos jest włacicielem tej całej Policji. 
