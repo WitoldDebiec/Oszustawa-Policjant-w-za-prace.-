@@ -257,3 +257,4 @@ To wszystko to są Bezosy. Bezos mam 1000M mieszkanie lub 5000M czy 7000M.
 Czemu mówię post mafia bo trzeba grać herosa aby coś dostać bo gazeta nie ma co pisać dla sztuki. 
 To Bezos od niepamientych czasów podnosi na ludzi rękę. 
 Bezosy zarabiają na wojnach to są te śmieci oni to rewolucje nakrtyczne. 
+Firmy krzak wycieły lasy na produkcje papieru celuzowego na banknoty i to były same Bezosy. 
