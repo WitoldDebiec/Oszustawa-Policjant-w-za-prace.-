@@ -230,3 +230,4 @@ Efektem jest geo post bo jest brak pieniedzy tylko są grubi ludzie bo mają na 
 Sprzedaże majątków i oszczędzanie to Izrael oni są wini tych długów ustawa 447. 
 Te afery Lobardowe to też żydzi. 
 Słowo rozwód i alimenty wymyślił Izrael. Oni wymyślili te sądy. To jest powiązane z Harrp. 
+Wariatem jest Izrael. 
