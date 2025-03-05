@@ -243,3 +243,4 @@ Elity z TV tobezdomni.
 Oni nie zabrali kasy skandynawi tamci mają kasę. To my w europie i na świecie przez Bezosów z Izraela żyjemy jak bezdomni a oni kiedyś byli bezdomni. 
 Bezos daje ludziom oszczędzacze co nie działają i karze oszczędzać. Kiedyś tak nie było. To jest jakiś wirus z tymi eleitami. 
 W Kieszeń wzieli też do systemu. 
+Po śmierci odelegowuje się na inną ziemie innym też radzę się przenieść do innej rodziny. Zdala od Bezos. 
