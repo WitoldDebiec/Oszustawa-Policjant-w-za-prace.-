@@ -226,3 +226,4 @@ Lalom Wybaczę ale post mafi nie. Co do moich ślubów nie chce się z nimi żen
 Zaręczyną z tymi lalami mówie nie bo akcetptują małe płace i post mafie i NGO. 
 Post mafia i Bezosy i Politycy to koljeny numer Kaczor Donald. A te lale zachowują się jak kaczory. 
 Te długi to NGO Izrael. 
+Efektem jest geo post bo jest brak pieniedzy tylko są grubi ludzie bo mają na jedznie.  
