@@ -261,3 +261,4 @@ Firmy krzak wycieły lasy na produkcje papieru celuzowego na banknoty i to były
 Oni to te puste slogany tyle o tym czemu nie ma dużo na waszych kontach. Bezosy za wasze pieniądze bawią się w dysneylendzie. 
 Udana kampania reklamowa czysty zysk nie zdowolony klijent produkt do kosza na śmieci zadowolona Post Mafia i Bezosy. 
 Kiedyś była większa kasa o kilka zer więcej na koncie. Dziś każdy jest z ul. minimalnej a Bezos z ul.Bogatej.
+Kiedyś Kobiety na ziemi gdyby nie Bezos miały na piękny porządny płaszcz i na koc zowoltex Arosa. Dziś są tylko pokolenia ikei i mopsu bieda za 4 zł.  
