@@ -249,3 +249,4 @@ Oszczędzacze to herezej tych wariatów. Nie da się odłożyć z 1000 zł czy z
 Ich sposby oszczędzania to legendy i bajki. Oni zabrali nam pieniądze narodom. 
 Izraelaska post mafia Bezosy nosili kiedyś nazwę legia sparta. 
 Możecie przekazać że nie potrzebujemu tu cara Rosji Bezosów. 
+Mnie nie interesuje kariera do pomocy i te zegarki. Chce zbierać majątek. A nie być chłopem na usługach Bezosów. Jeszcze czego Pan Bóg ma usługiwać Bezosom czy samsung.  
