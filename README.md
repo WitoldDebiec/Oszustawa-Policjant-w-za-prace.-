@@ -246,3 +246,4 @@ W Kieszeń wzieli też do systemu.
 Po śmierci odelegowuje się na inną ziemie innym też radzę się przenieść do innej rodziny. Zdala od Bezos. 
 Kiedyś było na mieszkanie i dom na raty.
 Oszczędzacze to herezej tych wariatów. Nie da się odłożyć z 1000 zł czy z tego żyć czy spłacać kredyt. 
+Ich sposby oszczędzania to legendy i bajki. Oni zabrali nam pieniądze narodom. 
