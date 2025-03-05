@@ -238,3 +238,4 @@ Post Mafia Bezosy robi w konia z budrzetem finsasowym.
 Te elity to menele. 
 Bezos jest włacicielem tej całej Policji. 
 Bezos oragnizuje wojny. 
+Post Mafia naglądała się Janosika to bezosy kradną i są właścielem Watykanu. 
