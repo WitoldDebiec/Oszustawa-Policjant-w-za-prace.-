@@ -233,3 +233,4 @@ Słowo rozwód i alimenty wymyślił Izrael. Oni wymyślili te sądy. To jest po
 Wariatem jest Izrael. 
 Politycy to pachoły pionki. Izrael rządzi kneste za kotarą. 
 To żydzi kochają się od nowa rodzić niż lecieć w kosmos to żydzi karzą się cały czas cyklicznie rodzić. 
+Te nie powodzenia historyczne to Izrael m.i. Iverum veto. 
