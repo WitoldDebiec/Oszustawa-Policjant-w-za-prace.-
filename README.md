@@ -252,3 +252,5 @@ Możecie przekazać że nie potrzebujemu tu cara Rosji Bezosów.
 Mnie nie interesuje kariera do pomocy i te zegarki. Chce zbierać majątek. A nie być chłopem na usługach Bezosów. Jeszcze czego Pan Bóg ma usługiwać Bezosom czy samsung.  
 Ci ludzie to wezwe policje Bezosy. 
 To Bezosy karzą pracować za 4 zł na H. 
+Wspólne naziwsko żydów tej postmafi to Bezosy oni im zmienili naziwska pozostałym w rodzinie. Afery Ufo i Elo Him to Elon Mask. Oni to nie bogowie. 1 Kobietę zabrali Adamowi i zbałamucili zgwałcili wirusem.
+To wszystko to są Bezosy. Bezos mam 1000M mieszkanie lub 5000M czy 7000M.   
