@@ -231,3 +231,4 @@ Sprzedaże majątków i oszczędzanie to Izrael oni są wini tych długów ustaw
 Te afery Lobardowe to też żydzi. 
 Słowo rozwód i alimenty wymyślił Izrael. Oni wymyślili te sądy. To jest powiązane z Harrp. 
 Wariatem jest Izrael. 
+Politycy to pachoły pionki. Izrael rządzi kneste za kotarą. 
