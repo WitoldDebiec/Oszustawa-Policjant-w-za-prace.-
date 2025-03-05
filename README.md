@@ -240,3 +240,4 @@ Bezos jest włacicielem tej całej Policji.
 Bezos oragnizuje wojny. 
 Post Mafia naglądała się Janosika to bezosy kradną i są właścielem Watykanu. 
 Elity z TV tobezdomni. 
+Oni nie zabrali kasy skandynawi tamci mają kasę. To my w europie i na świecie przez Bezosów z Izraela żyjemy jak bezdomni a oni kiedyś byli bezdomni. 
