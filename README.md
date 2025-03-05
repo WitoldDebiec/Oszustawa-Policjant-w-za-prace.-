@@ -232,3 +232,4 @@ Te afery Lobardowe to też żydzi.
 Słowo rozwód i alimenty wymyślił Izrael. Oni wymyślili te sądy. To jest powiązane z Harrp. 
 Wariatem jest Izrael. 
 Politycy to pachoły pionki. Izrael rządzi kneste za kotarą. 
+To żydzi kochają się od nowa rodzić niż lecieć w kosmos to żydzi karzą się cały czas cyklicznie rodzić. 
