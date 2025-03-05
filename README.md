@@ -259,3 +259,4 @@ To Bezos od niepamientych czasów podnosi na ludzi rękę.
 Bezosy zarabiają na wojnach to są te śmieci oni to rewolucje nakrtyczne. 
 Firmy krzak wycieły lasy na produkcje papieru celuzowego na banknoty i to były same Bezosy. 
 Oni to te puste slogany tyle o tym czemu nie ma dużo na waszych kontach. Bezosy za wasze pieniądze bawią się w dysneylendzie. 
+Udana kampania reklamowa czysty zysk nie zdowolony klijent produkt do kosza na śmieci zadowolona Post Mafia i Bezosy. 
